@@ -1,1 +1,1 @@
-https://your-username.github.io/deep-house-site/
+https://.io/deep-house-site/
